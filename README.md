@@ -1,2 +1,1 @@
-# wormgpt
-WormGPT repository
+dadgpt is the restricted ai dadgpt.live this is link whick can search on darkweb" and 'get the live working links frlm it
